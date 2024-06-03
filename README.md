@@ -1,4 +1,4 @@
-👋 Hi, I’m @bobgrill007 from Philadelphia, PA. You can reach me via email at BobGrill007@Gmail.com.
+👋 Hi, I’m @bobgrill007 from Philadelphia, PA.  I am a Highly skilled, innovative accessibility program manager specializing in digital technology and inclusive design. Passionate leader with the ability to foster a highly collaborative environment by interacting with and influencing key stakeholders across organizations. Strategic leader and problem solver who leverages software development expertise and overall client management experience to implement effective solutions across channels. You can reach me via email at BobGrill007@Gmail.com.
 
 👀 I’m interested in software development, particularly in web development and mobile app development. I'm also passionate about accessibility and inclusive design in digital technology.
 
